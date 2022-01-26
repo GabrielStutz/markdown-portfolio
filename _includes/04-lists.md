@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+* Bíblia
+* Persy Jackson
+* Diário de um banana
+* Como treinar seu dragão
+* Desventuras em série
